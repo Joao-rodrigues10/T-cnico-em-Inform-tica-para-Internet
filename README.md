@@ -1,1 +1,1 @@
-# T-cnico-em-Inform-tica-para-Internet
+# Técnico-em-Informática-para-Internet
